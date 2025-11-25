@@ -1,0 +1,1 @@
+# Programmi-Confronta-lista-immagini
